@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Himanshu
-- 👀 I’m interested in NOTHING
 
 
 
